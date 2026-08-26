@@ -7,6 +7,7 @@ warning: i don't speak in public chat, or much at all.</p>
 <p align="center">my interests include mainly gravity falls. i'm in other fandoms too,</br>
 but i don't talk about them much.</p>
 
-<p align="center">basic DNI criteria, but this also includes: bill cipher cosplayers, defenders, or</br>
+<p align="center">**basic DNI criteria, but this also includes**: bill cipher cosplayers, defenders, or</br>
 "kins", billford/billstan/fiddbill, dipford, mabideon, wendip, billdip</br>
-fordbel, dipeon, stancest, pinescest (all of these are darkship/comship.</br> i don't support any of them.) ford pines kinnies are on thin ice.</p>
+fordbel, dipeon, stancest, pinescest</br>
+(all of these are darkship/comship. i don't support any of them.) ford pines kinnies are on thin ice.</p>
