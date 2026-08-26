@@ -1,5 +1,5 @@
 <p align="center">whisper me if you wanna have a conversation.</br>
-i don't speak in public chat</p>
+warning: i don't speak in public chat, or much at all.</p>
 
 <p align="center">i'm strictly a non-sharing OC x canon shipper,</br>
 (paired off with stanford pines.)</p>
