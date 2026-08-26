@@ -8,13 +8,13 @@
 <p align="center">whisper me if you wanna have a conversation.</br>
 warning: i don't speak in public chat, or much at all.</p>
 
-<p align="center"># i'm strictly a non-sharing OC x canon shipper,</br>
+<p align="center"># i'm strictly a <strong>non-sharing</strong> OC x canon shipper,</br>
 (paired off with stanford pines.)</p>
 
 <p align="center">⤷ my interests include mainly gravity falls. i'm in other fandoms too,</br>
 but i don't talk about them much.</p>
 
-<p align="center">➤ basic DNI criteria, but this also includes: bill cipher cosplayers,</br>
+<p align="center">➤ <strong>basic DNI criteria, but this also includes:</strong> bill cipher cosplayers,</br>
 defenders, or
 "kins", billford/billstan/fiddbill, dipford, mabideon,</br>
 wendip, billdip
