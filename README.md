@@ -8,7 +8,7 @@ i don't speak in public chat</p>
 but i don't talk about them much.</p>
 
 <p align="center">basic DNI criteria, but this also includes: bill cipher cosplayers, defenders, or</br>
-"kins", billford/bill stan/fiddbill, dipford, mabideon, wendip, billdip</br>
+"kins", billford/billstan/fiddbill, dipford, mabideon, wendip, billdip</br>
 fordbel, dipeon, stancest, pinescest</br>
 (all of these are darkship/comship. i don't support any of them.)</br>
 ford pines kinnies are on thin ice.</p>
