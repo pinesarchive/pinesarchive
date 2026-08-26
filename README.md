@@ -14,7 +14,7 @@ warning: i don't speak in public chat, or much at all.</p>
 <p align="center">⤷ my interests include mainly gravity falls. i'm in other fandoms too,</br>
 but i don't talk about them much.</p>
 
-<p align="center">basic DNI criteria, but this also includes: bill cipher cosplayers,</br>
+<p align="center">➤ basic DNI criteria, but this also includes: bill cipher cosplayers,</br>
 defenders, or
 "kins", billford/billstan/fiddbill, dipford, mabideon,</br>
 wendip, billdip
